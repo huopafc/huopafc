@@ -1,0 +1,3 @@
+- 👋 Hi, I’m huopa
+- 👀  and I like buildings and urban development.
+- 📫 write to janne (dot) puustelli (at) forecon (dot) f i
